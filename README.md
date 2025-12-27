@@ -73,4 +73,4 @@ Estimated Salary
 ### Muhammad Azeem
 Machine Learning & Data Science Enthusiast
 
-Any queries: muhammedazeemph@gmail.com
+Any queries: muhammedazeemph15@gmail.com
